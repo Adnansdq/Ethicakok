@@ -1,0 +1,2 @@
+# Ethicakok
+Ethical is aswome 
